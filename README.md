@@ -7,4 +7,4 @@ Code for my tutoral videos:
 
 PL: https://youtu.be/FCtKJh9CHzU
 
-ENG: 
+ENG: https://youtu.be/0pDKeMOqs2c
